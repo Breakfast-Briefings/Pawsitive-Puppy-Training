@@ -1,4 +1,5 @@
 # Pawsitive Puppy Training
+![Pawsitive Puppy Training](https://www.vets4pets.com/siteassets/species/dog/puppy/labrador-puppy-happy.jpg?width=1040)
 Welcome to Pawsitive Puppy Training, the leading provider of canine education in the UK! We believe in the power of learning through play and making training sessions an enjoyable experience for both you and your loyal canine companion. Our dedicated team of experienced trainers is committed to helping you build a strong bond with your furry friend while imparting essential obedience skills.
 
 At Pawsitive Puppy Training, we offer a range of services designed to meet the unique needs of every pup and their owner. Here are some of the highlights:
